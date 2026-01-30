@@ -1,6 +1,9 @@
 
 # One Dollar Impact
 
+🔗 Official website: https://onedollarimpact.org  
+One Dollar Impact is a nonprofit initiative focused on transparent, small-scale giving and documented community support.
+
 One Dollar Impact is a nonprofit initiative focused on small-scale, transparent giving to support individuals and community-based projects.
 
 The initiative emphasizes ethical fundraising, direct assistance, and clear public documentation of its activities and use of funds.
